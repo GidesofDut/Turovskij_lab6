@@ -1,1 +1,1 @@
-Звіт- https://docs.google.com/document/d/1oIikbFWPe3u4b6qSdWTKuk-MBPfsMScfxFjHpHvLpCI/edit?usp=drivesdk
+Звіт- https://drive.google.com/file/d/1o0pb-luBjVKmraofo5wEYNUtSS_gIvPd/view?usp=drivesdk
